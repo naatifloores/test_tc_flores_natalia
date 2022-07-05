@@ -6,7 +6,7 @@ Me gusta:
 
 * Pan con palta
 * maquillar
-* y mas
+* si me invitas a una cerveza te cuento más
 
 Gracias por su atención
 N
